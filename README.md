@@ -1,1 +1,1 @@
-# Homework_maket_laptop-13.01.23-
+# Homework_maket_traidingview
